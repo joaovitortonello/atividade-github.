@@ -1,1 +1,1 @@
-# atividade-github.
+Apenas para uso disciplinar!!
